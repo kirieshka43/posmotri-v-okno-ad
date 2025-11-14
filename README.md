@@ -1,1 +1,1 @@
-https://github.com/kirieshka43/ono-tebe-nado-ad
+https://github.com/posmotri-v-okno-ad
